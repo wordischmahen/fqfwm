@@ -25,7 +25,7 @@ tsvely soup: [https://t.me/tsvelyy_soup](https://t.me/tsvelyy_soup)
 За сутки до открытия выставки у меня был запланирован отъезд в другой город и несмотря на это я все равно заехала на двадцать минут посмотреть в последний раз на место, подбодрить Лариона и, собственно, оставить на стене последний отпечаток своего присутствия в НИИ Снегири и au gallery.
 Также, естественно, готовила оформление промо афиш мероприятия.
 <br/><br/>
-<br/><br/>
+
 
 Я заметила, что у вас очень необычное расположение работ на выставках, вы так же работаете в том числе и со стенами в пространстве. В результаты это выглядит очень круто! Мне интересно, как у вас появился этот процесс, было ли это связано с тем, как вы располагаете работы у себя в студии?
 
@@ -33,27 +33,27 @@ tsvely soup: [https://t.me/tsvelyy_soup](https://t.me/tsvelyy_soup)
 Студии у меня нет, если не считать таковой рабочую комнату со столом, но рисунков у меня там не висит. 
 Перед подготовкой к первой выставке в au gallery я ездила в мастерскую и это был первый опыт посещения подобного места впервые с момента, как я ушла из художки в детстве.
 <br/><br/>
-<br/><br/>
+
 
 Еще вопрос про расположение: как вы вообще решили рисовать на стенах, дополняя работы, было ли это интуитивное решение «объединить» работы? Интересно ли вам работать сайт-специфично?
 
 Это были интуитивные и спонтанные решения, но в обоих случаях решения о возможности порисовать на стенах принимались внезапно и в последний момент. Поэтому сайт-специфичность значения не имеет, как будто хорошего погружающего фото может быть достаточно для передачи всех необходимых ощущений и смыслов.
 <br/><br/>
-<br/><br/>
+
 
 Каково вам было выставляться в более аутентичных пространствах как НИИ Снегири, резонируют ли локации с вашим творчеством, если сравнивать, например, с белым кубом?
 
 Мне очень понравилось, это абсолютно резонирующие с моим творчеством пространства. Насчет белых кубов точно сказать не могу ничего, так как опыта не было.
 Я в принципе считаю, что практически любое пространство можно более-менее приспособить проведению выставочного формата и меня радует такая возможность.
 <br/><br/>
-<br/><br/>
+
 
 Расскажите, пожалуйста, про ваш креативный процесс, чем вы вдохновляетесь, создавая работы? Я вижу, что у вас много работ разных медиумов, есть ли у вас предпочитаемый формат работы?
 
 Тут очень большой пласт совокупного бэкграунда за всю сознательную жизнь от советских мультфильмов до стиля одежды, который я сама же ношу каждый день. Очень трудно вычленить что-то отдельное. Люблю старые аниме сериалы и мангу, консольные игры от третьего до седьмого-восьмого поколения приставок, готическую субкультурную тематику и хорошую разнообразную музыку — основная подпитка вдохновения, пожалуй.
 Предпочитаемого формата нет, самое главное для меня — получить удовольствие в процессе, продуктивно и с интересом. Всегда по-разному, зависит от настроения или запроса в случае, если это коммерческий арт.
 <br/><br/>
-<br/><br/>
+
 
 Планируете ли вы сейчас еще выставки, если да, то можете вкратце рассказать об этом?
 
@@ -62,11 +62,11 @@ tsvely soup: [https://t.me/tsvelyy_soup](https://t.me/tsvelyy_soup)
 Мне очень по душе объединять визуал и музыку в одном тематическом пространстве!
 
 ---
+<br/><br/>
 
 Could you tell me how you started collaborating with au gallery? Did you apply to participate, or were you approached?
 
 The exhibition curator and my friend, Nihat Karaev, contacted the management of the location. :) A different location was originally planned, but ultimately, we reached an agreement with au gallery very fast, set up quickly, and gave people the opportunity to visit the exhibition for free for almost a week in such a cool and atmospheric place. We were very lucky to find the NII Snegiri project in the former TSNIGRI building — I really liked the contrast between my work and the gallery setting.
-<br/><br/>
 <br/><br/>
 
 About the collective exhibition [web cuteness](https://t.me/au_gallery/160): you are listed as the curator of the exhibition. Could you describe your experience, what your tasks were, and what processes may have been new to you? How did you find the experience overall?
@@ -77,7 +77,7 @@ Larion stoically took on the entire installation. We had complete freedom to do 
 The day before the exhibition opened, I was scheduled to leave for another city. Despite this, I still stopped by for twenty minutes. I wanted to take one last look at the place. I also wanted to cheer up Larion. In fact, I wanted to leave the last mark of my presence at the Snegiri Research Institute and au gallery on the wall.
 I was also responsible for creating the promotional posters for the event.
 <br/><br/>
-<br/><br/>
+
 
 I noticed that you have a very unusual approach to exhibiting your work; you also work with the walls of the exhibition space itself. The result looks great! I would be interested to know how this process came about and whether it is related to how you arrange works in your studio.
 
@@ -85,21 +85,21 @@ Thank you very much! In fact, we made the process of arranging the space as intu
 I don't have a studio as such, just a workroom with a table, but I don't hang my drawings there. 
 Before preparing for my first exhibition at au gallery, I attended a workshop. It was my first time visiting such a place since leaving art school as a child.
 <br/><br/>
-<br/><br/>
+
 
 How did you feel about exhibiting in more authentic spaces such as the Snegiri Research Institute? Do these locations resonate with your work, compared to, say, a white cube?
 
 I really liked it — these spaces resonate perfectly with my work. I can't say anything definitive about white cubes as I have no experience of them.
 I believe that any space can be adapted to an exhibition format, and I am delighted by this opportunity.
 <br/><br/>
-<br/><br/>
+
 
 Could you tell me about your creative process? What inspires you when creating your work? I see that you work in many different media. Do you have a preferred format?
 
 My entire conscious life has contributed to my work, from Soviet cartoons to the style of clothing that I wear every day. It is very difficult to single anything out in particular. My main sources of inspiration are old anime series and manga, console games from the third to the seventh or eighth generation of consoles, gothic subculture themes and good, diverse music.
 I don't have a preferred format — the most important things for me are enjoying the process and being productive and interested. This varies depending on my mood or the request in the case of commercial art.
 <br/><br/>
-<br/><br/>
+
 
 Do you have any more exhibitions planned at the moment? If so, could you tell me a little about them?
 
