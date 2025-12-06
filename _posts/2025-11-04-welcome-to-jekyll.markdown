@@ -64,9 +64,9 @@ interviewer: daria sergievskaya [https://t.me/workdischmahen](https://t.me/workd
 ---
 <br/><br/>
 
-Could you tell me how you started collaborating with au gallery? Did you apply to participate, or were you approached?
+Could you tell me how you started collaborating with [au gallery](https://t.me/au_gallery)? Did you apply to participate, or were you approached?
 
-The exhibition curator and my friend, Nihat Karaev, contacted the management of the location. :) A different location was originally planned, but ultimately, we reached an agreement with au gallery very fast, set up quickly, and gave people the opportunity to visit the exhibition for free for almost a week in such a cool and atmospheric place. We were very lucky to find the NII Snegiri project in the former TSNIGRI building — I really liked the contrast between my work and the gallery setting.
+The exhibition curator and my friend, Nihat Karaev, contacted the management of the location. :) A different location was originally planned, but ultimately, we reached an agreement with au gallery very fast, set up quickly, and gave people the opportunity to visit the exhibition for free for almost a week in such a cool and atmospheric place. We were very lucky to find the [NII Snegiri](https://t.me/verystrongplace) project in the former TSNIGRI building — I really liked the contrast between my work and the gallery setting.
 <br/><br/>
 
 About the collective exhibition [web cuteness](https://t.me/au_gallery/160): you are listed as the curator of the exhibition. Could you describe your experience, what your tasks were, and what processes may have been new to you? How did you find the experience overall?
