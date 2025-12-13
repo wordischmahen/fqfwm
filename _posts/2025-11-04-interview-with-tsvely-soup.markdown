@@ -1,4 +1,3 @@
-[# Back to Main Page]({% link _posts.md %})
 ---
 layout: post
 title:  "Интервью с цвелый суп (ru/eng)"
