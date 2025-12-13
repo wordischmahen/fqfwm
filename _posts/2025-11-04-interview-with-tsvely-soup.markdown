@@ -6,6 +6,7 @@ categories: interviews
 ---
 Scroll for english
 
+[# Back to Main Page]({% link index.md %})
 ---
 artist: tsvely soup [https://t.me/tsvelyy_soup](https://t.me/tsvelyy_soup)
 interviewer: daria sergievskaya [https://t.me/workdischmahen](https://t.me/workdischmahen)
