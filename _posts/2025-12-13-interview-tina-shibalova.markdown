@@ -43,7 +43,7 @@ interviewer: [Daria Sergievskaya](https://t.me/workdischmahen)
 Да, образование важно. Но также важно вовремя остановиться и идти в жизнь. Рамка «студент» дает успокоение, но она не научит самостоятельному пути. А он рано или поздно начнется.
 ---
 <br/><br/>
-Tina Shibalova is a multidisciplinary artist, curator and contemporary art researcher. She is a resident of the [Vinzavod Contemporary Art Centre Workshops](https://winzavod.ru/masterskie/)
+Tina Shibalova is a multidisciplinary artist, curator and contemporary art researcher. She is a resident of the [Winzavod Contemporary Art Centre Workshops](https://winzavod.ru/masterskie/)
 <br/><br/>
 At your exhibition, [The Flow of Tubes](https://snob.ru/profile/403978/blog/3110880/), two works were somewhat hidden from the viewer's gaze. One of these was 'Tfluer: 28 Situations', which could only be seen when illuminated. The second was completely hidden and had no title. As your works focus on the sensual sphere of life, I would be interested to know if you consider the untitled piece and its 'hidden' position to be a feature of your exploration of relationships, or if it is a feature of the relationships themselves. What are your thoughts on this interaction with the viewer?
 
