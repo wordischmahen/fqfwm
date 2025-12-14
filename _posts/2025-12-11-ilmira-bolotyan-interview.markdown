@@ -116,6 +116,6 @@ From a curator's perspective, the exhibition [A – Art, F – Feminism, A Topic
 <br/><br/>
 
 
-— While watching one of your lectures on [strategies for self-promotion for artists](https://youtu.be/EQtTuRXrYds?si=EywwHTbD6876FMZw), I wondered if you would describe your performances as 'agitation'.
+— While watching one of your lectures on [strategies of self-promotion for artists](https://youtu.be/EQtTuRXrYds?si=EywwHTbD6876FMZw), I wondered if you would describe your performances as 'agitation'.
 
 I: I don't think my performances can be described as such, since agitation implies a political agenda and my work was not originally political. Rather, they were inversions. I parodied the 'successful success' that was actively promoted in the late 2010s by the 'coaches for artists' who were emerging at the time. During the pandemic, however, this topic ceased to be funny as many people began doing similar online projects simply to survive. At the time, however, it provoked not only laughter, but also a certain amount of hate. **There were people I would call 'haters': they didn't understand the parodic nature of the project and still believed it was all serious. So it's definitely not worth perceiving it as anything other than a parody.**
