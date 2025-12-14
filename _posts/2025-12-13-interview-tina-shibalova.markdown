@@ -108,6 +108,6 @@ T: Personally, I love learning and I believe it is important to reinforce practi
 
 It's not about taking the same courses, but rather about mastering the areas of knowledge you need to produce good, honest work. How can you combine everything? Of course, you can't.
 
-Studying contemporary art taught me theory and critical thinking. **My education in directing — I studied documentary filmmaking and then theatre directing — gave me mastery of video tools and the language of constructing empty spaces, as well as practical experience in all forms of performance. Working with leading choreographers in the field of dance has given me visual sensitivity to movement and physicality. All of this enables me to create art that I breathe and speak.
+Studying contemporary art taught me theory and critical thinking. **My education in directing — I studied documentary filmmaking and then theatre directing — gave me mastery of video tools and the language of constructing empty spaces, as well as practical experience in all forms of performance. Working with leading choreographers in the field of dance has given me visual sensitivity to movement and physicality. All of this enables me to create art that I breathe and speak.**
 
-Yes, education is indeed important. However, it is also important to stop at the right time and step out into life. The 'student' status offers reassurance, but it won't teach you to find your own path. And at some point, that path will begin.**
+**Yes, education is indeed important. However, it is also important to stop at the right time and step out into life. The 'student' status offers reassurance, but it won't teach you to find your own path. And at some point, that path will begin.**
