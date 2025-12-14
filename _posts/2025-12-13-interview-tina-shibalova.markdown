@@ -57,9 +57,9 @@ interviewer: [Daria Sergievskaya](https://t.me/workdischmahen)
 
 **Современный художник в моей понимании — фигура сильно интеллектуальная. Она одновременно разбирается и в теории искусства, и в его истории или в части где усиленный интерес, владеет и воспитывает в себе критическое мышление, и остроту наблюдения, силу в своем медиуме (работе с материалом, с техникой)**. Это самая сложная профессия, пределов для обучения нет. Но не одному и тому же курсу, а процессу овладения области знаний, которые тебе нужны для честной хорошей работы. Как все совмещать? Конечно же никак. Но на своем примере скажу так:
 
-Обучение современном искусству дало мне теорию и критическую оптику. Образование в режиссуре — (я училась школе документального кино, а затем уже на театрального режиссера) владение видео и языком создания пустого пространства, перформанс во всех его проявлениях. Образование в сфере, работа с танцем  — визуальную чувствительность к движению и телесности. Все это в совокупности и дает мне возможность делать искусство таким, которым дышу и говорю.
+Обучение современном искусству дало мне теорию и критическую оптику. **Образование в режиссуре — (я училась школе документального кино, а затем уже на театрального режиссера) владение видео инструментами и языком конструирования пустого пространства, практика перформанса во всех его проявлениях. Работа с танцем ( я работала у ведущих режиссеров-хореографов) — визуальную чувствительность к движению и телесности. Все это в совокупности и дает мне возможность делать искусство таким, которым дышу и говорю.**
 
-Да, образование важно. Но также важно вовремя остановиться и идти в жизнь. Рамка «студент» дает успокоение, но она не научит самостоятельному пути. А он рано или поздно начнется.
+**Да, образование важно. Но также важно вовремя остановиться и идти в жизнь. Рамка «студент» дает успокоение, но она не научит самостоятельному пути. А он рано или поздно начнется.**
 
 ---
 <br/><br/>
@@ -106,6 +106,8 @@ T: Personally, I love learning and I believe it is important to reinforce practi
 
 **In my view, a contemporary artist is a highly intellectual figure who is well informed about art theory and art history, or their area of interest. They possess and cultivate critical thinking and keen observation skills, and have a strong grasp of their medium (working with materials and techniques). It is the most challenging profession, with no limits to learning.**
 
-It's not about taking the same course, but rather about mastering the areas of knowledge you need to produce good, honest work. How can you combine everything? Of course, you can't. Speaking from my own experience, however, I would say that studying contemporary art gave me a theoretical understanding and a critical perspective, while my education in directing — I studied documentary filmmaking and then theatre directing — gave me mastery of video and the language of creating empty space, performance in all its manifestations. An education in the field and experience of working with dance, gave me a visual sensitivity to movement and physicality. All of this gives me the opportunity to create art that I breathe and speak.
+It's not about taking the same courses, but rather about mastering the areas of knowledge you need to produce good, honest work. How can you combine everything? Of course, you can't.
 
-**Yes, education is important. However, it is also important to stop at the right time and step out into life. The 'student' status offers reassurance, but it won't teach you how to find your own path. Sooner or later, you will have to find your own path.**
+Studying contemporary art taught me theory and critical thinking. **My education in directing — I studied documentary filmmaking and then theatre directing — gave me mastery of video tools and the language of constructing empty spaces, as well as practical experience in all forms of performance. Working with leading choreographers in the field of dance has given me visual sensitivity to movement and physicality. All of this enables me to create art that I breathe and speak.
+
+Yes, education is indeed important. However, it is also important to stop at the right time and step out into life. The 'student' status offers reassurance, but it won't teach you to find your own path. And at some point, that path will begin.**
