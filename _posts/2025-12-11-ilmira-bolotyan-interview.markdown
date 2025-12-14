@@ -8,7 +8,7 @@ Scroll for english
 
 ---
 artist: Ильмира Болотян [@ilmira.bolotyan](https://www.instagram.com/ilmira.bolotyan/?hl=ru)
-interviewer: daria sergievskaya [https://t.me/workdischmahen](https://t.me/workdischmahen)
+interviewer: Daria Sergievskaya [https://t.me/workdischmahen](https://t.me/workdischmahen)
 ---
 Ильмира Болотян — художник, куратор, сотрудник научного отдела [Музея современного искусства «Гараж»](https://garagemca.org/). Соорганизатор [Центра «Красный»](https://russianartarchive.net/ru/catalogue/organization/OJVC)), Основательница [Агенства по Продвижению Художников](https://artguide.com/practices/1825) (АПХ)
 
