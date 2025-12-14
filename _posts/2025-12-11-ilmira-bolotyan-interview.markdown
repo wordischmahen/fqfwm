@@ -60,7 +60,7 @@ interviewer: daria sergievskaya [https://t.me/workdischmahen](https://t.me/workd
 <br/><br/>
 
 
-— Я во время просмотра одной из ваших лекций про [стратегии по продвижению художников](https://youtu.be/EQtTuRXrYds?si=EywwHTbD6876FMZw) задалась вопросом, идентифицировали ли вы свои перформансы как агитацию?
+— Я во время просмотра одной из ваших лекций про [стратегии по самопродвижению художников](https://youtu.be/EQtTuRXrYds?si=EywwHTbD6876FMZw) задалась вопросом, идентифицировали ли вы свои перформансы как агитацию?
 
 И: Не думаю, что мои перформансы можно назвать агитацией, поскольку агитация предполагает политическую повестку, а в мои работы политическая составляющая изначально не закладывалась. Скорее, они были инверсионными. Я пародировала «успешный успех», который в конце 2010-х активно пропагандировали появившиеся тогда «коучи для художников». Во время пандемии эта тема перестала быть смешной, ведь многие начали делать подобные онлайн-проекты просто чтобы выжить. Но в тот момент, когда я этим занималась, это вызывало не только смех, но и определённый хейт. **Были люди, которых я могу назвать хейтерами: они не уловили пародийный характер проекта, не восприняли его как «альтер-эго» и до сих пор считают, что всё было всерьёз. Поэтому воспринимать это как агитацию точно не стоит.**
 
@@ -116,6 +116,6 @@ From a curator's perspective, the exhibition [A – Art, F – Feminism, A Topic
 <br/><br/>
 
 
-— While watching one of your lectures on [strategies for promoting artists](https://youtu.be/EQtTuRXrYds?si=EywwHTbD6876FMZw), I wondered if you would describe your performances as 'agitation'.
+— While watching one of your lectures on [strategies for self-promotion for artists](https://youtu.be/EQtTuRXrYds?si=EywwHTbD6876FMZw), I wondered if you would describe your performances as 'agitation'.
 
 I: I don't think my performances can be described as such, since agitation implies a political agenda and my work was not originally political. Rather, they were inversions. I parodied the 'successful success' that was actively promoted in the late 2010s by the 'coaches for artists' who were emerging at the time. During the pandemic, however, this topic ceased to be funny as many people began doing similar online projects simply to survive. At the time, however, it provoked not only laughter, but also a certain amount of hate. **There were people I would call 'haters': they didn't understand the parodic nature of the project and still believed it was all serious. So it's definitely not worth perceiving it as anything other than a parody.**
